@@ -1,8 +1,11 @@
-# Hacks/tools for school 
+# **School Hacks & Tools**
 
-```all blooks```
-```prodigy all items```
-```prodigy all pets```
+Unlock tools for fun, automation, and domination in your favorite school platforms.
 
-Discord: discord.gg/seroxen (expired)
-Dm me on discord for things that you want make
+> **Disclaimer:** Educational purposes only. Not affiliated with or endorsed by any of the platforms listed.
+
+---
+
+```Blooket – Cheats, bots & tools
+Prodigy – Gold, pets, & more
+Gimit – Coming soon.```
