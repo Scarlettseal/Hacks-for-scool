@@ -5,3 +5,4 @@
 ```prodigy all pets```
 
 Discord: discord.gg/seroxen (expired)
+Dm me on discord for things that you want make
